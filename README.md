@@ -1,2 +1,2 @@
 # Canva-design-poster
-poster dengan tema warna pink dan aesthatic❤
+![poster makanan dengan tema warna pink dan aesthatic❤](koreanpancakes.jpeg)
